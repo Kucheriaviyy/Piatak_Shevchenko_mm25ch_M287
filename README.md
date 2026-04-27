@@ -1,2 +1,2 @@
 # Piatak_Shevchenko_mm25ch_M287
-Pelmeshki
+Pelmeshki \(￣︶￣*\))
